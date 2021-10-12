@@ -1,6 +1,6 @@
 # Valorant-Spoofer---Cheat--Cracked-
 
-Detect!
+Detected!
 
 
 Details ; https://memoryhackers.org/konular/valorant-esp-aimbot-vanguard-spoofer-free.218093/
